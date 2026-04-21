@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور العين في سكون الليل
+> قلبي ينادي من شدة الويل
+> عيونك سحر تذيب الروح
+> بين النجوم طيفك يلوح
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
